@@ -7,6 +7,8 @@ My OC is Lila the TV head girl. 💙💚📺
 
 <img width="4096" height="4096" alt="1000143325" src="https://github.com/user-attachments/assets/04c47730-2ad8-4f7f-bcb0-3ced059558c4" />
 
+NOTE: because this is my female character, My gender is actually Male ♂️.
+
 Sometimes i'm not active because i'm at school or other things.
 
 - How to reach me: YouTube & TikTok
