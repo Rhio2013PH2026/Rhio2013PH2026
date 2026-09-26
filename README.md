@@ -11,5 +11,6 @@ Sometimes i'm not active because i'm at school or other things.
 
 - How to reach me: YouTube & TikTok
 - Pronouns: he/him
-
+- Country: Philippines
+  
 Special repostiory for this one.
