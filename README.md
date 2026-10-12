@@ -12,5 +12,8 @@ Sometimes i'm not active because i'm at school or other things.
 - How to reach me: YouTube & TikTok
 - Pronouns: he/him
 - Country: Philippines
-  
+
+NOTE
+The reason why i created Lila the TV head girl is because i watched [Mariah Arts](https://youtube.com/@MariahArts)' videos featuring her OC called "Sam the TV head girl" on YouTube in 2025 (a year before Lila the TV head girl).
+
 Special repostiory for this one.
