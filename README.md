@@ -9,7 +9,7 @@ My OC is Lila the TV head girl. 💙💚📺
 
 Sometimes i'm not active because i'm at school or other things.
 
-- How to reach me: [YouTube](https://youtube.com/@rhio_aldjhon_2013_ph) & [TikTok]([https://youtube.com/@rhio_aldjhon_2013_ph](https://www.tiktok.com/@rhio_aldjhon_2013_ph))
+- How to reach me: [YouTube](https://youtube.com/@rhio_aldjhon_2013_ph) & [TikTok](https://www.tiktok.com/@rhio_aldjhon_2013_ph)
 - Pronouns: he/him
 - Country: Philippines
 
