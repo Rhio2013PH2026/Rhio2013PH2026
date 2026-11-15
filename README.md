@@ -13,8 +13,9 @@ Sometimes i'm not active because i'm at school or other things.
 - Pronouns: he/him
 - Country: Philippines
 
-## Email
+## Emails
 - Creator's email: altrhioreynes@gmail.com
+ 
 - My OC's email (official) lila.tvhead@gmail.com
 
 ## NOTE
