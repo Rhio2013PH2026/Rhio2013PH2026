@@ -14,7 +14,7 @@ Sometimes i'm not active because i'm at school or other things.
 - Country: Philippines
 
 ## Email
-[altrhioreynes@gmail.com](mailto: altrhioreynes@gmail.com)
+altrhioreynes@gmail.com
 
 ## NOTE
 The reason why i created Lila the TV head girl is because i watched [Mariah Arts](https://youtube.com/@MariahArts)' videos featuring her OC called "Sam the TV head girl" on YouTube in 2025 (a year before Lila the TV head girl).
